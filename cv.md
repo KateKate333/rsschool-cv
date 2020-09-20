@@ -3,7 +3,7 @@
 
 ## Contact information:
 * Adress : Minsk, Belarus; 
-* Phone, Telegram, WhatsApp: +375 (29) 226-79-49;
+* Phone, Telegram, WhatsApp, Viber: +375 (29) 226-79-49;
 * E-mail: katebortsevich@gmail.com;
 * GitHub : https://github.com/KateKate333
 
